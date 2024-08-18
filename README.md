@@ -1,9 +1,3 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  .° ༘🎧⋆🖇₊˚ෆ +； ˖ , ,‎ `фандомы за которые шарю:`
-  ㅤㅤㅤㅤㅤㅤㅤㅤ
-      ㅤ      ㅤ          ㅤ          ㅤ          ㅤ                ㅤ    
-      ㅤ                ㅤ          ㅤ                ㅤ          ㅤ          ㅤ          ㅤ          ㅤ                ㅤ          ㅤ          ㅤ          ㅤ          `ace attorney, TAWOG, mob psycho, genshin impact. steven universe,`  ㅤㅤㅤㅤㅤ     ㅤ                ㅤ          ㅤ          ㅤ          ㅤ          ㅤ                ㅤ          ㅤ          ㅤ          ㅤ          ㅤ                ㅤ          ㅤ          ㅤ          ㅤ       ㅤ                ㅤ          ㅤ          ㅤ        `hsr, danganronpa, undertale, sally face, sk8, jujutsu kaisen,`
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ`omori, trigun stampede. yttd, death note, detroit: become human`+； ˖ , ,‎ㅤㅤㅤㅤㅤ  
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ       ㅤㅤㅤ       ㅤㅤㅤ`she-ra, fran bow, ru twitch, until dawn, the quarry`
 
 ㅤㅤ![image](https://github.com/user-attachments/assets/58c29fef-cccb-4b12-9278-5775b67f9719)
 
